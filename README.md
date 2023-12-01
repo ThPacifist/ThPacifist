@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ThPacifist
 - 👀 I’m interested in Video games
-- 🌱 I’m currently learning Game Design
+- 🌱 I have a Bachelor's Degree in Video Game Design
 - 💞️ I’m looking to collaborate on video games, and other similar projects
 - 📫 How to reach me:
   Email:  benjamin.henschen@gmail.com
